@@ -12,6 +12,10 @@
 
 </div>
 <div align="center">
+  i block everyone with a wilbur/dream/george skin/profile btw!!
+ so block me if u dont want me to block u first thanks
+</div>
+<div align="center">
   
 <img width="600" height="300" alt="image" src="https://github.com/user-attachments/assets/42a728b4-879d-41df-9102-6ba0634eda22" />
 
