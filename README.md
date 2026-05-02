@@ -17,7 +17,7 @@
 </div>
 <div align="center">
   
-<img width="600" height="300" alt="image" src="https://github.com/user-attachments/assets/42a728b4-879d-41df-9102-6ba0634eda22" />
+<img width="600" height="250" alt="image" src="https://github.com/user-attachments/assets/42a728b4-879d-41df-9102-6ba0634eda22" />
 
 </div>
 <br />
@@ -30,7 +30,7 @@
 </div>
 <div align="center">
   
-<img width="600" height="300" alt="image" src="https://github.com/user-attachments/assets/88766df8-0e0a-425f-a881-9c16152b9932" />
+<img width="600" height="250" alt="image" src="https://github.com/user-attachments/assets/88766df8-0e0a-425f-a881-9c16152b9932" />
 
 </div>
 <br />
