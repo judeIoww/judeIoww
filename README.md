@@ -25,7 +25,7 @@
 <br />
 <div align="center">
   
-[rentry](https://rentry.co/projectbloodymary) ㅤㅤㅤㅤㅤ✦ ㅤㅤㅤㅤㅤ[straw](https://pvurrity.straw.page) ㅤㅤㅤㅤㅤ✦ ㅤㅤㅤㅤㅤ[ata](https://bloodymary.atabook.org)
+[rentry](https://rentry.co/mrphine) ㅤㅤㅤㅤㅤ✦ ㅤㅤㅤㅤㅤ[straw](https://pvurrity.straw.page) ㅤㅤㅤㅤㅤ✦ ㅤㅤㅤㅤㅤ[ata](https://bloodymary.atabook.org)
 
 </div>
 <div align="center">
